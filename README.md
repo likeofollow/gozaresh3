@@ -25,6 +25,7 @@ https://gozaresh3.com
 - [Telegram](https://t.me/gozaresh3_official)
 - [Quora](https://www.quora.com/profile/Sport-World-42/posts)
 - [خبرفارسی](https://farsnews.ir/gozaresh3)
+- [گوگل سایت](https://sites.google.com/view/gozaresh3)
 
 ## ارتباط
 
