@@ -14,6 +14,7 @@ https://gozaresh3.com
 - [وب‌سایت گزارش ۳](https://gozaresh3.com)
 - [اصفحه اخبار](https://gozaresh3.com/news/)
 - [ویدیوهای ورزشی](https://gozaresh3.com/videos/)
+- [خلاصه بازی‌ها](https://gozaresh3.com/highlight/all/%D8%AE%D9%84%D8%A7%D8%B5%D9%87-%D8%A8%D8%A7%D8%B2%DB%8C-%D9%87%D8%A7)
 - [تماس با ما](https://gozaresh3.com/تماس-با-ما)
 
 ### شبکه‌های اجتماعی
